@@ -4,4 +4,6 @@ Please feel free to use my files to continue my work.
 
 No rights reserved.
 
-Thanks!
+Just a simple thanks, and I am happy!
+
+It's all MAGIC
